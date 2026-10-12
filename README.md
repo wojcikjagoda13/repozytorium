@@ -1,1 +1,1 @@
-# repozytorium
+# wssi26
