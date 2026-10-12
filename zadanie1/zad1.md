@@ -1,1 +1,4 @@
 
+**odpowiedź zadanie 1.** 
+W mojej opinii biorąc pod uwagę stan na 12.10.2026. inteligencja człowieka nie jest wymagana do żadnej z wymienionych czynności, ponieważ wydaje mi się, że wszystkie z nich były już wykonywane przez sztuczną inteligencję. Jednak moje doświadczenie w wypełnianiu deklaracji PIT, czy „programowanie” kanałów telewizyjnych nie pozwala mi przyznać racji w tym zakresie, ponieważ czuję, że nie jestem dobrą osobą do wypowiadania się na ten temat.
+Jednak pozostałe czynności jak najbardziej są już nawet dzisiaj wykorzystywane bez pomocy ludzkiej inteligencji, jak np. kierowanie samochodem. Polska infrastruktura nie pozwala na zastosowanie komputera do prowadzenia auta, jednak w Stanach Zjednoczonych jest to już powszechne i stosowane w życiu codziennym. Niestety w dzisiejszych czasach będzie coraz trudniej znaleźć czynność, która będzie wymagała tylko i wyłączie inteligencji człowieka.
